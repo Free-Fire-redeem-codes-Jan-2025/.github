@@ -1,6 +1,6 @@
 # Free Fire Redeem Codes for 5th January 2025
 
-As of January 5, 2025, Garena has released new Free Fire redeem codes that players can use to obtain exclusive in-game rewards. Here are the latest codes:
+January, 2025, Garena has released new Free Fire redeem codes that players can use to obtain exclusive in-game rewards. Here are the latest codes:
 
 ## Latest Redeem Codes
 - **FFWCY6TSX2QZ**
